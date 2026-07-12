@@ -1,0 +1,1 @@
+# selfcaring-idea-collection
